@@ -11,15 +11,16 @@ permalink: /howto/
   * Use the hashtag #hayhouseboycott and share widely!
   * Tweet [Hay House](https://twitter.com/hayhouse) and [Doreen Virtue](https://twitter.com/DoreenVirtue) to let them know what you are doing.
  
- ## Recommended charities
-       We recommend donating to an eco-friendly or animal sanctuary. There are questions of how ethical eco-friendly Doreen’s decks are, which are printed in China. Also she has [abandoned her animal sanctuary](http://www.thecelticfairy.com/2017/09/17/doreen-virtues-dream/) which many of us believed we were donating to. There are some sanctuaries here that seem to be doing a great job and are a great alternative.
-      * US:
-          * [Farm sanctuaries](https://www.farmsanctuary.org/)
-      * Europe:
-          * [Eden farmed animal sanctuary](http://edenfarmedanimalsanctuary.com/about/)
-      * Worldwide:
-          * [World wildlife fund](https://www.worldwildlife.org/)
-            
+## Recommended charities
+
+We recommend donating to an eco-friendly or animal sanctuary. There are questions of how ethical eco-friendly Doreen’s decks are, which are printed in China. Also she has [abandoned her animal sanctuary](http://www.thecelticfairy.com/2017/09/17/doreen-virtues-dream/) which many of us believed we were donating to. There are some sanctuaries here that seem to be doing a great job and are a great alternative.
+  * US:
+  * [Farm sanctuaries](https://www.farmsanctuary.org/)
+  * Europe:
+  * [Eden farmed animal sanctuary](http://edenfarmedanimalsanctuary.com/about/)
+  * Worldwide:
+  * [World wildlife fund](https://www.worldwildlife.org/)
+    
 # How to boycott in other ways
-   - Ask your local shop not to stock Hay House or Doreen Virtue products anymore and explain why using the points and resources from this website.
-   - Do not buy any Hay House products and make sure you are vocal about why.
+  * Ask your local shop not to stock Hay House or Doreen Virtue products anymore and explain why using the points and resources from this website.
+  * Do not buy any Hay House products and make sure you are vocal about why.
