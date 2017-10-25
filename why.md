@@ -7,12 +7,12 @@ permalink: /why/
 # Why are we doing this?
 
 ## Censorship
-  * Hay House and Doreen Virtue [censor anyone who questions them on their pages](https://hayhouseboycott.github.io/faq.html), even when done so in a logical and grounded manner. We believe in a free and open Internet. We believe in free speech, and especially peaceful free speech!
+  * Hay House and Doreen Virtue [censor anyone who questions them on their pages](faq), even when done so in a logical and grounded manner. We believe in a free and open Internet. We believe in free speech, and especially peaceful free speech!
   ## Inadequate customer service
   * Doreen Virtue’s camp refuses to reply to most emails for refund requests, and sometimes even send out rude emails.
   * Hay House refuse to answer our questions.
   
-[Please see FAQ page for more defailed info.](https://hayhouseboycott.github.io/faq.html)
+[Please see FAQ page for more defailed info.](faq)
 
 # What do we expect as a result of the boycott?
 
