@@ -1,6 +1,13 @@
 ---
-# You don't need to edit this file, it's empty on purpose.
-# Edit theme's home layout instead if you wanna make some changes
-# See: https://jekyllrb.com/docs/themes/#overriding-theme-defaults
-layout: home
+layout: default
 ---
+
+We are boycotting Hay House!
+
+We're asking Hay House and Doreen Virtue to treat their customers fairly by having a peaceful protest. We're asking people to sell their Hay House products for charity.
+
+[Why is this happening? Read more here.](/why)
+
+[What has happened so far? Read more here.](/what)
+
+[How to boycott? Read more here.](/howto)
