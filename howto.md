@@ -7,7 +7,7 @@ permalink: /howto/
 # How to sell your Ascended Masters deck for charity
 ### You can choose where you are going to sell your deck or Hay House products.
   * An auction - sign up for a free account on [ebay.com](ebay.com). You can list for free if you start the bidding at a low price, and always set a fair price for shipping.
-  * Via social media. Simply share on your page or via local groups and pages if you are selling. You can also send us your post so we can reshare it on [Facebook](https://www.facebook.com/Hay-House-Boycott-736282823236035/) and [Twitter](https://twitter.com/hayhouseboycott) (make sure it's public first if you want us to share!).
+  * Via social media. Simply share on your page or via local groups and pages if you are selling. You can also send us your post so we can reshare it on [Facebook](https://www.facebook.com/groups/815823091922040/) and [Twitter](https://twitter.com/hayhouseboycott) (make sure it's public first if you want us to share!).
   * Use the hashtag #hayhouseboycott and share widely!
   * Tweet [Hay House](https://twitter.com/hayhouse) and [Doreen Virtue](https://twitter.com/DoreenVirtue) to let them know what you are doing.
  

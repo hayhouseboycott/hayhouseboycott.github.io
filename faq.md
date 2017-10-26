@@ -29,7 +29,7 @@ permalink: /faq/
     ## How can I help you further?
   * Report Hay House and Angel Therapy Inc. [to the BBB](https://www.bbb.org/sdoc/business-reviews/product-sales-general/hay-house-inc-in-carlsbad-ca-1038632).
   * Write a [complaint to Doreen Virtue](https://www.earthangel.com/contact/) and to [Hay House](https://www.hayhouse.com/contact/email/) about how you feel. Ask for a refund if you think you are entitled to one.
-  * Share our posts, retweet us. Follow us on [Facebook](https://www.facebook.com/Hay-House-Boycott-736282823236035/) and [Twitter](https://twitter.com/hayhouseboycott).
+  * Share our posts, retweet us. Follow us on [Facebook](https://www.facebook.com/groups/815823091922040/) and [Twitter](https://twitter.com/hayhouseboycott).
   * Make unique tweets and comments about this subject. STAY GROUNDED. Please make sure you stick to facts and logical arguments if you can. The purpose of this is to show ourselves as a group of grounded and logical consumers of Hay House. We have good reasons for the boycott and we wish to stick to them. Link to the website and sources in the website to make your point. Be yourself and honest. It’s not rocket science ;)
   * Spread the word. Ask your local shop to stop stocking Hay House and explain to them why you will not be buying any more Hay House products.
   * Please make sure you use the hashtag #hayhouseboycott and make as many posts public about this subject as you feel comfortable with.

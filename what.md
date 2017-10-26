@@ -43,8 +43,8 @@ permalink: /what/
       
 ## Censorship examples
   * Hay House
-      * [Ursula Clarke was banned](http://www.thecelticfairy.com/2017/09/06/an-open-letter-to-doreen-virtue/) from the page for asking Doreen questions in the Fairyologist group (not comments made on the Hay House page). She was later unbanned and then banned again for making the following comments:
-      * Lisa Eddy was banned for asking discernible comments on the Hay House page
+      * [Ursula Clarke was banned](http://www.thecelticfairy.com/2017/09/06/an-open-letter-to-doreen-virtue/) from the page for asking Doreen questions in the Fairyologist group (not comments made on the Hay House page). She was later unbanned and then banned again for asking discernable questions.
+      * Lisa Eddy was banned for asking discernible comments on the Hay House page.
       * TBA: Please send us your specific example/screenshot
   * Doreen Virtue
       * Ursula Clarke who was banned for (we believe, asking about goddesses and witches):
