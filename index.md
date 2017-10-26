@@ -7,7 +7,7 @@ layout: default
 <iframe width="560" height="315" src="https://www.youtube.com/embed/x3AtSUkFnJw" frameborder="0" allowfullscreen></iframe>
 <br />
 <br />
-*We are boycotting Hay House!*
+**We are boycotting Hay House!**
 We're asking Hay House and Doreen Virtue to treat their customers fairly by having a peaceful protest. We're asking people to sell their Hay House products for charity.
 
 </center>
