@@ -56,3 +56,9 @@ permalink: /what/
 ## Avoiding censorship
   * Tweets cannot be deleted.
   * Be persistent. You can ignore one person but not an army of truthers!
+
+[Why is this happening? Read more here.](https://hayhouseboycott.github.io/why/)
+
+[How to boycott? Read more here.](https://hayhouseboycott.github.io/howto/)
+
+[Read our FAQ](https://hayhouseboycott.github.io/faq/)

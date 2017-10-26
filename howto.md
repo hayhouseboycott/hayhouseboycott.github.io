@@ -23,3 +23,10 @@ We recommend donating to an eco-friendly or animal sanctuary. There are question
 # How to boycott in other ways
   * Ask your local shop not to stock Hay House or Doreen Virtue products anymore and explain why using the points and resources from this website.
   * Do not buy any Hay House products and make sure you are vocal about why.
+
+
+[Why is this happening? Read more here.](https://hayhouseboycott.github.io/why/)
+
+[What has happened so far? Read more here.](https://hayhouseboycott.github.io/what/)
+
+[Read our FAQ](https://hayhouseboycott.github.io/faq/)

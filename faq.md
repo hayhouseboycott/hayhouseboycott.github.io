@@ -40,3 +40,9 @@ permalink: /faq/
 [^2]: Please see Doreen's Fairyologist course. She advocates a raw vegan diet: 
     "You’ll probably notice this course affecting your appetite for foods and beverages, where you’re more drawn to healthier vegan and organic foods. When you spend time with fairies, they do help us to be more aligned with nature. So you no longer crave heavy foods, especially if they involved animal cruelty or pesticides.
     The usual path of “appetite ascension” is to first lose your desire for “red meat” (cows and pigs), and next lose your appetite for chickens and turkeys. After this, the desire for cheese, dairy, and eggs goes away next. Then, the desire for processed or overly-cooked food is gone. Eventually, you only desire fresh organic fruits and vegetables. Some people believe that fruitarianism is the highest vibrational path of eating, since it doesn’t involve killing plants or animals. If you are guided to go vegan, be sure to take daily B-12 supplement, and do research about ways to get your protein needs met through kale, beans, legumes, and so forth."
+
+[Why is this happening? Read more here.](https://hayhouseboycott.github.io/why/)
+
+[What has happened so far? Read more here.](https://hayhouseboycott.github.io/what/)
+
+[How to boycott? Read more here.](https://hayhouseboycott.github.io/howto/)
