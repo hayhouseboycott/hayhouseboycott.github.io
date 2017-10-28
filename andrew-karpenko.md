@@ -312,7 +312,7 @@ First it seems Andrew did a quick Google and said that Brigid is not a goddess b
 > https://www.historicmysteries.com/celtic-goddess-brigid-saint-irish-myth/
 
 # 2
-I would of course, gladly take Goddess Brigid with me to court:
+I would of course, gladly take Goddess Brigid with me to court... 
 
 > That is an example where things aren't clear.. That old traditions merge with newer ones..
 > 
@@ -333,7 +333,7 @@ I would of course, gladly take Goddess Brigid with me to court:
 > I don't appreciate you doing that..
 
 # 5
-This is a person who claims to be able to solve your psycholigical issues with your father.
+This is a person who claims to be able to solve your psychological issues with your father.
 
 > A lot of what you are saying is your perception... you claim that you are on the side of truth.
 > 
@@ -346,7 +346,7 @@ This is a person who claims to be able to solve your psycholigical issues with y
 > We all have difference versions of truth.
 
 # 6 
-He's talking [about the blog post I linked](http://www.thecelticfairy.com/2017/09/06/an-open-letter-to-doreen-virtue/). I did that because I was ignored after being banned from a group I paid to be in.
+He's talking [about the blog post I linked](http://www.thecelticfairy.com/2017/09/06/an-open-letter-to-doreen-virtue/). I did that because I was ignored after being banned from a group I paid to be in. Also the chat was posted in a group of 3000+ people.
 
 > I am currently looking into the legality of you posting a private chat I had with you in your blog.
 > 
