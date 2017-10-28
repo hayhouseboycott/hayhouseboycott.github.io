@@ -1,7 +1,7 @@
 ---
 layout: default
 title: Andrew Karpenko
-permalink: /emails-from-andrew-karpenko/
+permalink: /andrew-karpenko/
 ---
 
 Andrew Karpenko is one of the main moderators for Doreen Virtue's social media pages. He also co authored a book with her - [_Father Therapy_](https://www.hayhouse.com/father-therapy-paperback). 
