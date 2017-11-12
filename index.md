@@ -13,7 +13,7 @@ We're asking Hay House and Doreen Virtue to treat their customers fairly by havi
 
 </center>
 
-
+[Read Lisa Eddy's post about why the animal sanctuary was dissolved.](https://www.facebook.com/lisa.frideborg.eddy/posts/1930372957285655?pnref=story)
 
 [Why is this happening? Read more here.](why)
 
